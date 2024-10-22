@@ -1,2 +1,1 @@
-# random-website
-hmm... what could it be i wonder
+# i felt a little bored.
